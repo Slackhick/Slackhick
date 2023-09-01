@@ -1,5 +1,5 @@
 # 💫 About Me:
-### Hi there 👋<br>* 👂 My name is Harsh Srivastava<br>* 👩 Pronouns: ...Harsha<br>* 🔭 I’m currently working on ... Nothing LOL<br>* 🌱 I’m currently learning ...Java, Node Js<br>* 🤝 I’m looking to collaborate on ...SK Hynix <br>* 🤔 I’m looking for help with ...<br>* 💬 Ask me about ... on my mail Harshsrivastava.microsoft.outlook.in<br>* 📫 How to reach me: ...By Mail<br>* ❤️ I love ..."Gaming" "Read Books" " Learning about Aerospace"<br>* ⚡ Fun fact: ...I want to be {Aerospace Engineer]
+### Hi there 👋<br>* 👂 My name is Harsh Srivastava<br>* 👩 Pronouns: ...Harsha<br>* 🔭 I’m currently working on ... Cisco <br>* 🌱 I’m currently learning ...Java, Node Js<br>* 🤝 I’m looking to collaborate on ...SK Hynix <br>* 🤔 I’m looking for help with ...<br>* 💬 Ask me about ... on my mail Harshsrivastava.microsoft.outlook.in<br>* 📫 How to reach me: ...By Mail<br>* ❤️ I love ..."Gaming" "Read Books" " Learning about Aerospace"<br>* ⚡ Fun fact: ...I want to be {Aerospace Engineer]
 
 
 ## 🌐 Socials:
