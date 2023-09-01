@@ -1,5 +1,5 @@
 # 💫 About Me:
-### Hi there 👋<br>* 👂 My name is Harsh Srivastava<br>* 👩 Pronouns: ...Harsha<br>* 🔭 I’m currently working on ... Cisco <br>* 🌱 I’m currently working...Freelancer Yunix Technology<br>* 🤝 I’m looking to collaborate on ...Samsung Innovation campus <br>* 🤔 I’m looking for help with ...<br>* 💬 Ask me about ... on my mail {Harshsrivastava.Microsoft.outlook.in.com}<br>* 📫 How to reach me: ...By Mail<br>* ❤️ I love ..."Gaming" "Read Books" " Learning about Programming"<br>* ⚡ Working:- Project With Microsoft/ Student Ambassador in Microsoft...Aws cloud Intern...Cisco Certified Cloud Engineer {]
+### Hi there 👋<br>* 👂 My name is Harsh Srivastava<br>* 👩 Pronouns: ...Harsha<br>* 🔭 I’m currently working on ... Cisco <br>* 🌱 I’m currently working...Freelancer Yunix Technology<br>* 🤝 I’m looking to collaborate on ...Samsung Innovation campus <br>* 🤔 I’m looking for help with ...<br>* 💬 Ask me about ... on my mail {Harshsrivastava.Microsoft.outlook.in.com}<br>* 📫 How to reach me: ...By Mail<br>* ❤️ I love ..."Gaming" "Read Books" " Learning about Programming"<br>* ⚡ Working:- Project With Microsoft/ Student Ambassador in Microsoft...Aws cloud Intern...Cisco Certified Cloud Engineer ]
 
 
 ## 🌐 Socials:
